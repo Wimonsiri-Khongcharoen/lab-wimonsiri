@@ -1,3 +1,3 @@
 # lab-wimonsiri
 
-hello ma n
+thailand
